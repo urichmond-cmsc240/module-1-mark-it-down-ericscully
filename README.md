@@ -1,7 +1,7 @@
 # Eric Scully
 ![alt text](IMG_1037.jpg)
 
-**Eid: eric.scully | Username:ericscully**
+**Eid: eric.scully | Username: ericscully**
 
 *Pronouns: he/him | Class of 2027*
 
